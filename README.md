@@ -1,1 +1,1 @@
-# Containing Certifications of Professional Courses
+# Containing Certifications of Professional Courses and Internships
